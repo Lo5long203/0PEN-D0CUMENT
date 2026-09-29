@@ -1,2 +1,2 @@
-<a class="button" href="https://lo5long203.github.io/hhdoc/scndoc1.html" target="_blank">
+<a class="button" href="https://openinapp.link/qdn14" target="_blank">
         CLICK HERE
